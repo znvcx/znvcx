@@ -1,0 +1,3 @@
+- Hi, I’m @znvcx
+- If you want to reach me, go to [aek.one](https://aek.one)
+- If you want, you can [buy me a coffee](https://www.buymeacoffee.com/nzrswx).
